@@ -1,6 +1,6 @@
 Therefore, once more will I astound these people with wonder upon wonder;
 the wisdom of the wise will perish,
-the intelligence of the intellifent will vanish
+the intelligence of the intelligent will vanish
 and WOE to those who will go great depths to hide their plans from the Lord
 who do their work in the darkness and think,
 "Who sees us? Who will know?"
